@@ -1,2 +1,2 @@
-# BestCraftMC
-Mejor Server
+# BestCraft
+Servidor BestCraft El Mejor Server Mexicano!
